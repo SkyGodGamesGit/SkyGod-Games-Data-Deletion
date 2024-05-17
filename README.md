@@ -1,0 +1,1 @@
+You have the right to ask us to completely delete your personal data. In order to have your personal data erased (deleted), send us a message describing your request to email address “SkyGodGamesInfo@gmail.com”
